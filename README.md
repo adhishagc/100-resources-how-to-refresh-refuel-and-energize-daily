@@ -1,4 +1,4 @@
-# 100 Resources on how to Refresh, Refuel and Energize your self
+# 100 Resources on how to Recharge your self. :books:
 I will be sharing 100 resources on how to refresh, refuel and energize your self on a daily basis.
 
 ## Top 100
